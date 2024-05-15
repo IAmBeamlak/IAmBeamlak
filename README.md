@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding, books, video games and speed learning new skills.
 - 🌱 I’m currently learning Web development
 - 💞️ I’m looking to collaborate on speed learning
-- 📫 How to reach me asfawbeamlak99@gmail.com
+- 📫 How to reach me on instagram @asfawbeamlak
 
 
 <!---
